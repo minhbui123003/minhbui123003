@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @minhbui123003 (Bùi Quang Minh)
+ I’m @minhbui123003 (Bùi Quang Minh)
 
 
 
